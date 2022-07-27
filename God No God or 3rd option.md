@@ -6,7 +6,7 @@ Pascal's challenge:
 
 The crucial point is, which God? there have been countless gods worshiped throughout the world history. Prevailing Judaism, Christianity, Islam does not agree to each other on their God's property. If you chose Pascal's God, you are not necessarily immune from hell fire -- what if Muhammad is right? <br/>  
 
-The 3rd option would be the view Buddhists and Hindus hold: reincarnation. The debate has always been the entity which is being reincarnated, but as metaphysical objects works differently than physical objects, a definition won't serve as clear a point, so no further words on this. <br/>
+The 3rd option would be the view Buddhists and Hindus hold: reincarnation. The debate has always been what kind of entity is being reincarnated, as metaphysical objects works differently than physical objects, a definition won't serve as clear a point, so no further words on this. <br/>
 
 when you hold an absolute-materialist point of view, you likely will use the word "just" a lot. Physical pleasure is "just" dopamine, anger is "just" adrenaline, memory is "just" manifestation of one of your intricate brain functions... <br/>
 
